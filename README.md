@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Daffa
 - 👀 I’m interested in frontend engineering
 - 🌱 I’m currently learning HTML, CSS, JavaScript
-- 📫 How to reach me @_xvyn on instagram or @notawallet on twitter
+- 📫 How to reach me @dupsssssssssssss on instagram or @notawallet on twitter
